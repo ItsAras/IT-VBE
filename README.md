@@ -1,1 +1,1 @@
-# Informacinių Technologijų Valstybiniai Brandos Egzaminai Ir Jų Sprendimai.
+# Informacinių Technologijų VBE Sprendimai.
