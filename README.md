@@ -1,1 +1,1 @@
-# IT-VBE
+# Informacinių Technologijų Valstybiniai Brandos Egzaminai Ir Jų Sprendimai.
