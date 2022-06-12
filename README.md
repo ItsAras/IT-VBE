@@ -1,1 +1,1 @@
-# Informacinių Technologijų VBE Sprendimai.
+# Informacinių Technologijų VBE Sprendimai
